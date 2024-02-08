@@ -1,4 +1,4 @@
-"# Capteurs de pression de l'industrie aérospatiale Marché 2024: Recherche qualitative et quantitative - CCS, Taber Industries, KAVLICO, VAISALA
+# Capteurs de pression de l'industrie aérospatiale Marché 2024: Recherche qualitative et quantitative - CCS, Taber Industries, KAVLICO, VAISALA
 
 <strong>Capteurs de pression de l'industrie aérospatiale Marché 2024-2030</strong>
 
