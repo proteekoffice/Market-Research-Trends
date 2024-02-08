@@ -1,4 +1,4 @@
-"# Intelligence artificielle-reconnaissance des émotions Marché 2024: Rapport d'information mis à jour 2030 | Microsoft, Affectiva, Eyeris, Cloudwalk
+# Intelligence artificielle-reconnaissance des émotions Marché 2024: Rapport d'information mis à jour 2030 | Microsoft, Affectiva, Eyeris, Cloudwalk
 
 <strong>Intelligence artificielle-reconnaissance des émotions Marché 2024-2030</strong>
 
