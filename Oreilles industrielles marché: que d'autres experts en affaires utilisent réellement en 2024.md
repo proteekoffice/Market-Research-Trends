@@ -1,4 +1,4 @@
-"# Oreilles industrielles marché: que d'autres experts en affaires utilisent réellement en 2024
+# Oreilles industrielles marché: que d'autres experts en affaires utilisent réellement en 2024
 
 <strong>Oreilles industrielles Marché 2024-2030</strong>
 
