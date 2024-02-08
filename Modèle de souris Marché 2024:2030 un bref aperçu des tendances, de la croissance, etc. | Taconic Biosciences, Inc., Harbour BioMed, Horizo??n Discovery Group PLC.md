@@ -1,4 +1,4 @@
-"# Modèle de souris Marché 2024:2030 un bref aperçu des tendances, de la croissance, etc. | Taconic Biosciences, Inc., Harbour BioMed, Horizo??n Discovery Group PLC
+# Modèle de souris Marché 2024:2030 un bref aperçu des tendances, de la croissance, etc. | Taconic Biosciences, Inc., Harbour BioMed, Horizo??n Discovery Group PLC
 
 <strong>Modèle de souris Marché 2024-2030</strong>
 
