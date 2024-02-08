@@ -1,4 +1,4 @@
-"# Dispositifs d'embolisation vasculaire Marché 2024: rapport technique actuel mis à jour | Medtronic Plc, Shape Memory Medical Inc., Johnson & Johnson Services Inc., Merit Medical Systems Inc.
+# Dispositifs d'embolisation vasculaire Marché 2024: rapport technique actuel mis à jour | Medtronic Plc, Shape Memory Medical Inc., Johnson & Johnson Services Inc., Merit Medical Systems Inc.
 
 <strong>Dispositifs d'embolisation vasculaire Marché 2024-2030</strong>
 
