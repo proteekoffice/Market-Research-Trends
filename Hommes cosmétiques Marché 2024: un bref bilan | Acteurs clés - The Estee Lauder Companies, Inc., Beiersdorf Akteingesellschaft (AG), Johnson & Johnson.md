@@ -1,4 +1,4 @@
-"# Hommes cosmétiques Marché 2024: un bref bilan | Acteurs clés - The Estee Lauder Companies, Inc., Beiersdorf Akteingesellschaft (AG), Johnson & Johnson
+# Hommes cosmétiques Marché 2024: un bref bilan | Acteurs clés - The Estee Lauder Companies, Inc., Beiersdorf Akteingesellschaft (AG), Johnson & Johnson
 
 <strong>Hommes cosmétiques Marché 2024-2030</strong>
 
